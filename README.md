@@ -1,5 +1,5 @@
 ### Seja bem vindo! 👋
-### Me chamo Leonardo Seraphim, sou um eterno estudante
+### Me chamo Leonardo Seraphim
 
 
 ### Estudando e utilizando atualmente:
